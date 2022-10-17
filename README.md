@@ -1,2 +1,2 @@
 # done
-coping mechanism with impostor syndrome
+feeble attempts for coping with impostor syndrome
